@@ -8,4 +8,4 @@
 
 * Initial inspiration (in short): The digital space creates an alternate reality co-existing with our perceived version of physical reality much like dreams. A redefinition of the Digital is happening as it becomes more and more perplexed and co-dependent with the Physical forming a new identity, the Phygital. Through a digital writer who read Freud one might have access to the Digital's subconsious.
 
-* final artwork found here: (link needed)
+* final artwork found here: https://issuu.com/lbitsiko/docs/freudkenstein_a4
